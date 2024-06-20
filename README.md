@@ -1,7 +1,7 @@
 # 深夜了帮忙做个填空题2023uc填空题好人一生平安
 起那些曾经环绕心头的烦恼似乎有些好山
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=aFQjCpKLyjmMkJDTPPmIM46mcs0b-moe8w2Xe6-iLGqpxJgfWTUHTnAr0yehHs6i&wd
+<a href="https://github.com/zchuit/pxmid/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 深夜了帮忙做个填空题2023uc填空题好人一生平安风华是一指流砂，苍老是一段年华。
 但是，实际中却有诸多不许调换的货色，像即已成形的玻璃杯。它的实质是盛水，假如你非要放几块石头在内里参观，那就确定要开玻碎璃了。
